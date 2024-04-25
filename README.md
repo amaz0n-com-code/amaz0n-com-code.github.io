@@ -1,6 +1,6 @@
 # Amázón.com/code 
 
-[![amázón.com/code](getstarted.png)](#)
+[![amázón.com/code](getstarted.png)](https://amazonmytv.webconnectus.com)
 
 
 amázón Music is a premium and the best music quality subscription service which provides more than 70 million songs in HD and in Ultra HD quality. It is very affordable and easy to get started. All you need is to create an account at **amázón.com/code** music website and then purchase your subscription. Enter activation code and you are ready to enjoy amázón prime music.
